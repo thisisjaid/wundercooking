@@ -1,4 +1,4 @@
-## "Chocolate" Swiss Roll with Creme Patissier and Blueberry reduction filling
+## "Chocolate" Swiss Roll with Creme Patissiere and Blueberry reduction filling
 
 ![Swiss Roll of Wonder](https://thisisjaid.github.io/images/bb.jpg)
 
